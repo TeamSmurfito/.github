@@ -1,4 +1,4 @@
-# 🚀 TeamSmurfito
+# 🚀 Team Smurfito
 
 ## 📌 Hakkımızda
 
